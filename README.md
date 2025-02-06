@@ -1,4 +1,4 @@
-# Remote Entry to Mid-Level Data Analyst Roles Posted in January
+# Remote Entry to Mid-Level Data Focused Roles Posted in January
 <div align="center">
   <!-- Intro text & link -->
   <p>
